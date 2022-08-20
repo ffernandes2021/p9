@@ -1,1 +1,4 @@
 # p9
+A fundação da Apple e da Microsoft, a criação do mouse e da Graphical User Interface (GUI), a fundação do Facebook, segredos e vazamentos do Wikileaks, uma máquina de decodificação que acabaria com a segunda grande guerra, tudo isto e muito mais, neste incrível post! Se você é apaixonado por tecnologia essas indicações são para você! [**:arrow_upper_right:**](https://aprendacodar.blogspot.com/2022/08/filmes-e-documentarios-que-todo.html)
+
+[![thumb](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh7a_3Znne3aFldA2dW2Gfi0lAP5wxGiLdLnPebc9TZalTpqc-6HgNbFsIGAwVRee5o4jpuITOaFcYBWCAx5DE37oxRY-1xW5KMkGmwMpBD2QPhz1wRm9i6DfcHG-DYmyR4G9myFgZ6nttlw168bdQmL-X7p58NM7WsSCSWGuMgoPMmk4q9OPF0EbhS/s1600/movies-test-2.png)](https://aprendacodar.blogspot.com/2022/08/filmes-e-documentarios-que-todo.html)
